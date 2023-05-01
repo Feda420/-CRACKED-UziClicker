@@ -1,0 +1,2 @@
+# -CRACKED-UziClicker
+[CRACKED] UziClicker 
